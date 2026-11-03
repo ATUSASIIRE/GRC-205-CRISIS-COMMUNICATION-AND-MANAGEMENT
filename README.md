@@ -1,0 +1,2 @@
+# GRC-205-CRISIS-COMMUNICATION-AND-MANAGEMENT
+Ransomware during payroll week
